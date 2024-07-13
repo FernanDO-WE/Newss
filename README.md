@@ -10,3 +10,7 @@
 - Compatible with all mobile devices and with a beautiful and pleasant user interface.
 
 💙 Lets connect on Linkedin
+
+
+
+https://gevendra2004.github.io/minimal-Portfolio-design/
